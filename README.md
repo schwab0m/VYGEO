@@ -7,3 +7,4 @@ yeeeeeeeee!
 takže tak 
 Změna 1
 Změna 10 
+změna 1000
